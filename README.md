@@ -1,0 +1,1 @@
+# ideal-school-game
